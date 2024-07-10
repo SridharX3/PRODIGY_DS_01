@@ -38,4 +38,3 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 For any inquiries or collaborations, feel free to reach out:
 
 - Email: [sridharpalanisamy1706@gmail.com](mailto:sridharpalanisamy1706@gmail.com)
-- LinkedIn: [Sridhar P]([https://www.linkedin.com/in?sridhar-p-167189286](https://www.linkedin.com/in/sridhar-p-167189286?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
